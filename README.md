@@ -1,0 +1,1 @@
+# ogamikami-blue-archive
